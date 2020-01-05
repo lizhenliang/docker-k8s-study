@@ -1,5 +1,5 @@
 ### 讲义云盘地址
->### 链接： [https://pan.baidu.com/s/1EMPBGdBftP0UILYUyd3tbQ(https://pan.baidu.com/s/1NOPQkt7C-Ll6kf8v5yBkwg)
+>### 链接： https://pan.baidu.com/s/1EMPBGdBftP0UILYUyd3tbQ
 
 ### 感谢您的关注与支持，为了方便交流，组建技术群，欢迎大家加入，一起交流、学习，共同进步！
 >### QQ技术群
